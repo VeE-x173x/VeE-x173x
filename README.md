@@ -2,9 +2,9 @@
 - 👀 I’m interested in space and programming
 - 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on projects so that I can further my knowledge/experience
-- 📫 How to reach me via email: scorpio.vee@yahoo.com
+- 📫 How to reach me - via email: scorpio.vee@yahoo.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I like sports< I have two dogs, and I ride motorcycles
+- ⚡ Fun fact: I like sports, I have two dogs, and I ride motorcycles
 
 <!---
 VeE-x173x/VeE-x173x is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
