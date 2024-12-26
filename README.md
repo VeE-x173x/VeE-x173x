@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @VeE-x173x
-- 👀 I’m interested in space and programming
+- 👀 I’m interested in aviation, space and programming
 - 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on projects so that I can further my knowledge/experience
 - 📫 How to reach me - via email: scorpio.vee@yahoo.com
